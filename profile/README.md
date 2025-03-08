@@ -3,6 +3,7 @@
 <h2>Masuk : <a href="https://www.atbfinancialclassic.com/">Limatogel</a></h2>
 
 ![LIMA-APK](https://github.com/user-attachments/assets/26ade6b5-3ca9-46cb-a2fc-7a2ebba5235a)
+<meta name="google-site-verification" content="fgFnOv8JZi0olTDXsYNCz0HILqlgh4kHZmMk_APCp6s" />
 
 <h1>Apa Itu Limatogel</h1>
 <p>Limatogel adalah platform game online yang menghadirkan pengalaman bermain terbaik di Indonesia. Dengan beragam pilihan permainan seperti <span class="highlight">sportsbook, slot online, live casino, poker, dan togel</span>, Limatogel menjadi destinasi utama bagi pemain yang ingin menikmati keseruan bertaruh secara aman dan menguntungkan.</p>
